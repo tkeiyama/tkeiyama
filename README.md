@@ -1,1 +1,1 @@
-### Simply Amazing, Amazingly Simple
+**Simply Amazing, Amazingly Simple**
